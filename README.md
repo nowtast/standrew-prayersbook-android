@@ -1,1 +1,0 @@
-# standrew-prayersbook-android
